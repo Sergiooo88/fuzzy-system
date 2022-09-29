@@ -1,0 +1,2 @@
+# fuzzy-system
+And the fact you treat me like actual shit and the only reason you apologize is because you are going to jail just shows how unbelievably selfish you are. Lol. If you think I believe you for one second you are insane. You thought you'd run back to that ugly troll and not impressed. Not my bad. Still not letting you give it to me again. So thanks for being honest even though she was already on my camera and you already stayed the night with her last night.   You deserve her. Fuck the disease out of her  Make her actually pregnant. 
